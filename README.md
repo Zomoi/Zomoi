@@ -1,4 +1,4 @@
-# 💫 About Me:
+yo, I'm shin
 <br>
 
 
